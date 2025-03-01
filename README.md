@@ -15,6 +15,6 @@
 
 ## 📫 How to reach me
 - 📧: giacconemassimo@gmail.com
-- [linkedIn](https://www.linkedin.com/in/massimo-giaccone/)
+- [linkedIn](https://www.linkedin.com/in/massimo-giaccone-97493025a/)
 
 Thanks for stopping by!
